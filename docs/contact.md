@@ -1,4 +1,4 @@
-# 精东app下载
+# 404黄台软件禁用入口
 
 We would love to hear from you! Reach out to us through any of the following methods:
 
